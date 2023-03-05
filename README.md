@@ -9,3 +9,4 @@ c)And by the tenth year, that number rises to 80%
 
 2)Traditional marketing methods have limitations such as high cost and being time-consuming. These problems can be solved
 
+pr done or not
